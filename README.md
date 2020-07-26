@@ -1,0 +1,1 @@
+# IT-stocks-analysis-after-covid-19-Pandemic
